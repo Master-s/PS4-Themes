@@ -14,7 +14,7 @@
 
 
 # Download
-()
+(https://github.com/Master-s/PS4-Themes/releases/tag/1.0.0)
 
 # Youtube
 https://www.youtube.com/@master_s9
