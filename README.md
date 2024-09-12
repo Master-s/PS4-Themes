@@ -2,8 +2,9 @@
 # 
 
 
+![PS4Theme_titled-1](https://github.com/user-attachments/assets/15cb6224-9ff1-49ee-ae12-c65b4500e740)
 
-![image](https://github.com/user-attachments/assets/b4c1bbf1-f5fb-44d6-bd01-4b291557a280)
+
 
 
 
